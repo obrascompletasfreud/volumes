@@ -6629,7 +6629,7 @@ dos homens, traria o objeto sexual para uma situação favorável, por meio
 de uma reação específica \[em \[1\]\]. Mas das mulheres exige-se que
 renunciem ao arco da reação específica; em lugar
 
-![](Vol. 01 - imagens/media/image2.wmf){width="1.363888888888889in"
+![](./Vol.%2001%20-%20imagens/media/image2.wmf){width="1.363888888888889in"
 height="1.6534722222222222in"}
 
 Fig. 2
